@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @VICKT-CRYPTO, the CEO OF VICKY-EXCHANGE
+- 👀 I’m interested in getting familiar with crypto enthusiasts.
+- 🌱 I’m currently learning frontend and backend development
+- 💞️ I’m looking to collaborate on crypto and tech gurus
+- 📫 How to reach me ... +2348134742740
+- 😄 Pronouns: l'm a very passionate person who likes to learn, relearn and explore 
+- ⚡ Fun fact: You can't make everyone happy and you also can't force respect
